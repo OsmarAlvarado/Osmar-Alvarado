@@ -1,5 +1,5 @@
-### Hi there 👋
+### Hi, I´m Osmar 👋
 
 <!--
-Hi, I´m Osmar
+
 -->
